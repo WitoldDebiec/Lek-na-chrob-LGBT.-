@@ -1,0 +1,1 @@
+# Lek-na-chrob-LGBT.-
